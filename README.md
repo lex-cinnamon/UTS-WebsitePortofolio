@@ -1,4 +1,4 @@
-Website Portofolio
+WEBSITE PORTOFOLIO
 
 Nama : Muhamad Aksyal Faiz Destian
 
